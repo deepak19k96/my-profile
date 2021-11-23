@@ -21,7 +21,5 @@ I develop products rather than some Web Apps or website so if you are looking fo
 
 Among my skills, I would point out problem-solving, analytic thinking, out of the box thinking and I have great research skills.
 
-I am looking forward to working with you.
-
 Kind Regards
 Deepak Kumar 
